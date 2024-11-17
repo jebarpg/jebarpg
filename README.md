@@ -2,7 +2,7 @@
 
 ## What I currently Do
 
-- 🔭 I’m currently working @ [Eternal Elucidation LLC](https://eternalelucidation.com)
+- 🔭 I’m currently working @ 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
